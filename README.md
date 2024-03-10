@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **I don't know how to code**
 
-- <h3 align="left">Connect with me:</h3>
+- <h3 align="left">Connect with me: raiyanalahiani@pm.me</h3>
 <p align="left">
 </p>
 
